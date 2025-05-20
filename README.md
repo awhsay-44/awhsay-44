@@ -1,16 +1,13 @@
-## Hi there 👋
+✨Yashwanthi Balaganesan
+      [Creative thinker | Tech enthusiast | Future-forward designer]
 
-<!--
-**awhsay-44/awhsay-44** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ 🤖 Passion: AI • Design • Emerging Tech  
+ 🎨 Style: Minimal, Smart, Human-Centered  
+ 🛠️ Skills: Innovation • Visual Thinking • Problem Solving  
+ 🚀 Currently Exploring: Intelligent Systems • UX in AI • Creative Coding  
+ 🧭 Driven By: Curiosity • Clarity • Impact  
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ 📬 Let’s Connect:
+ 
+ 💼 [LinkedIn](https://www.linkedin.com/in/your-profile/)  
+ 📧 [yash4444wa@gmail.com](mailto:yash4444wa@gmail.com)
