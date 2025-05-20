@@ -9,5 +9,5 @@
 
  📬 Let’s Connect:
  
- 💼 [LinkedIn](https://www.linkedin.com/in/your-profile/)  
+ 💼 [LinkedIn](https://www.linkedin.com/in/yashwanthi-balaganesan-747b6a309/) 
  📧 [yash4444wa@gmail.com](mailto:yash4444wa@gmail.com)
